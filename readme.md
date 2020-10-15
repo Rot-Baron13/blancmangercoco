@@ -17,6 +17,8 @@ Un Question Master est désigné.
 
 Établir les associations les plus incongrues et gagner des points.
 Le 1er joueur à 5 points remporte la partie.
+![This is a alt text.](https://divine-et-feminine.com/wp-content/uploads/2019/03/blanc-manger-coco-cartes-jeu.jpg "Draw your cards.")
+
 blanc-manger-coco Question
 
 # Déroulement du jeu
